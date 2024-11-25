@@ -1,1 +1,1 @@
-# first6shops4
+# second one ima try and go for 500-100+
